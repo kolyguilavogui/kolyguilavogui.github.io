@@ -94,7 +94,7 @@ Actively open to roles in:
 - BI Developer  
 - Data Analyst (Advanced Power BI)  
 
-Target Markets: **Canada 🇨🇦 | Germany 🇩🇪**
+Target Markets: **Canada 🇨🇦 | Germany 🇩🇪**  | France FR**  | United States USA**  | International UK**
 
 ---
 
